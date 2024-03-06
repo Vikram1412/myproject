@@ -1,1 +1,1 @@
-# this my invention for every one who want to use your skill
+# this my collections of code for every one who want to u
